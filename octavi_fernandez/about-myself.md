@@ -8,3 +8,7 @@
 * Rock climbing
 * Tabletop games
 * Movies
+
+# Birthplace
+
+* Palma de Mallorca
