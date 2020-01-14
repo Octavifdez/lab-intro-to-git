@@ -1,7 +1,7 @@
-# Who am I
+ï»¿# Who am I
 
 * Octavi
-* Fernández
+* Fernï¿½ndez
 
 # Hobbies
 
