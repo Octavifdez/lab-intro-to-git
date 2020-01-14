@@ -1,10 +1,7 @@
 # Who am I
 
 * Octavi
-* Fernández
+* Fernï¿½ndez
 
 # Hobbies
-
-* Rock climbing
-* Tabletop games
-* Movies
+Cool hobbies but they had to gooo
